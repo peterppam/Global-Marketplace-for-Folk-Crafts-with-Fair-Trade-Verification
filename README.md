@@ -1,0 +1,1 @@
+# Global-Marketplace-for-Folk-Crafts-with-Fair-Trade-Verification
